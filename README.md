@@ -10,6 +10,8 @@ i'll make this prettier sometime else.
 > 
 > Might come off aggressive or loud, hopefully I don't though. My mood kinda cycles, not sure why yet.
 >
+> Adding onto above, my love language (platonic or not) is a mix of both ATTACKATTACKATATCKCRGRGRR,MAUL,,and overly affectionate.
+>
 > I DO NOT BLOCK FOR NO REASON AND I DON'T UNBLOCK.
 >
 "***``If you want things done right, you should just do it YOURSELF!``***" (/LYR) 
